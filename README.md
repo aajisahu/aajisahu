@@ -5,8 +5,6 @@
 
 - 🌱 I’m currently learning **JAVA**
 
-- 📷Photography [Photography is the story I fail to put into words](Photography is the story I fail to put into words)
-
 - 📫 How to reach me **aajisahu@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
