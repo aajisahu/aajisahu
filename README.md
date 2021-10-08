@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **JAVA**
 
-- 📷Photographar [❤️Photography📸❤️](❤️Photography📸❤️)
+- 📷photographer [❤️Photography📸❤️](❤️Photography📸❤️)
 
 - 📫 How to reach me **____**
 
