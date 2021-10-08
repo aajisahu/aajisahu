@@ -5,7 +5,9 @@
 
 - 🌱 I’m currently learning **JAVA**
 
-- 📫 How to reach me **aajisahu@gmail.com**
+- 📷Photography [❤️Photography📸❤️](❤️Photography📸❤️)
+
+- 📫 How to reach me **bad.clicker**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
